@@ -1,0 +1,2 @@
+# BilgisayarOrganizasiyonuVeMimarisi
+Derslerde yaptığımın fotoğrafları
